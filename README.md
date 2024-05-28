@@ -1,0 +1,6 @@
+![Ekran görüntüsü 2024-01-11 200948](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/b2261f0f-a491-4029-91ff-1028015dae08)
+![image (1)](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/ef676bf0-b4c9-49c4-b8cc-6b91a4d1c848)
+![image (2)](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/d3d3a879-c846-4e72-9906-5c28d53ba741)
+![image (3)](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/20bb0467-5046-4044-ac5e-3c56c17b02a7)
+![image (4)](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/d338a466-0dc8-4fe5-9dac-8135183a8d5c)
+![image](https://github.com/HsnEmre/Barkodlu-Satis-Programi/assets/92093161/13e4fa64-2676-454f-9014-fe8e9a38411a)
